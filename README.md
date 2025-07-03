@@ -1,2 +1,5 @@
-# Ranthambore-Wild-Safaris
-or on individual basis. There are 10 Safari zones for Gypsy/Canter Safari. There are two types of safari vehicle allowed by Forest department one is Gypsy which is 6 pax. vehicle other is canter which is 20 Pax. vehicle
+*Ranthambore Wil Safaris Booking Services*
+Explore the majestic Ranthambore National Park with our comprehensive safari booking services. We offer:
+1. *Gypsy Safari Booking*: 6-seater vehicle for an intimate wildlife experience
+2. *Canter Safari Booking*: 20-seater vehicle for a shared adventure
+Contact us to plan your Ranthambore trip!
